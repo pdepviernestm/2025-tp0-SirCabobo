@@ -1,7 +1,7 @@
 ## **Luciano Tisera, o Cabo**
 ### Sobre mí
 
-Mi nombre es *Luciano*, pero casi todos me dicen **Cabo** (por el pingüino de Madagascar, la historia no viene al caso). Tengo 23 años y estoy cursando el 2do año de la carrera.
+Mi nombre es *Luciano*, pero casi todos me dicen **Cabo** (por el pingüino de Madagascar, la historia no viene al caso). Tengo 23 años y estoy cursando el 2do año de la carrera, y andaba laburando hasta el año pasado pero me volaron (?.
 
 Desde chiquito me interesa usar la computadora para lo que sea, desde navegar por internet hasta jugar.
 
